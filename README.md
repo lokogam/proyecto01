@@ -4,3 +4,4 @@
 y ahora que toca hacer
 Duvan : no se 
 mm ya veo
+esteb es un cabio en pc
